@@ -1,2 +1,2 @@
-# RollADieBoobz69
+# RollADie
 Roll dice and shit lmaooooo
